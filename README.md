@@ -65,7 +65,7 @@ see the full Career Services Commitment.
 
 ### AT ~5 WEEKS PRIOR TO GRADUATION
 
-- Access to the Career Prep Track about the job search process
+- Access to the Career Prep course about the job search process
 - Help creating your resume and presence on LinkedIn
 - Mock cultural and technical interviews
 - Assignment of a Career Coach, and 1:1 job-search and career coaching
